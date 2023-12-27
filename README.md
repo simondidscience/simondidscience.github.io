@@ -1,1 +1,0 @@
-# simondidscience.github.io
